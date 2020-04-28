@@ -1,2 +1,2 @@
-28.04.2020
+28.04.2020<br>
 Hello guys. It is my first post on my pseudo-looser-blogger website. I created my this shit, because I have to write some sentence in English, but I can't write to someone. This place is like draft, place when I can write anythink. I am not going write here everyday (sometimes I have to rest of English), and I don't want write a long story. You know a few sentences, use few a new words, well well well :).
